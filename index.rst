@@ -20,8 +20,10 @@ Lô12A. KCN Hiệp Phước, Xã Hiệp Phước, Huyện Nhà Bè Tp. HCM
 
 https://fujiice.vn/
 
-https://fujiice.vn/about-us/
+https://fujiice.vn/da-kho/
 
-https://fujiicevn.tumblr.com/
+https://fujiice.vn/da-gel/
+
+https://www.tumblr.com/fujiicevn
 
 https://fujiicevn.wordpress.com/
